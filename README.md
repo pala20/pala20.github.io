@@ -1,1 +1,0 @@
-# pala20.github.io
